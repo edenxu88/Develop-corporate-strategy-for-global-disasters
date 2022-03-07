@@ -40,11 +40,3 @@ In recent years, there have been various studies on government, organization, an
 
 With the development of science and technology, we need more research and to provide solutions to global disasters by releasing the power of information.
 
-## subhean
-
-checkjjjjjjjjjj
-
-cejck 
-neww 
-add
-mrx
